@@ -1,0 +1,1 @@
+Ghost Marble Duel is a 1v1 competitive duel that blends the precision of billiards with supernatural strategy. Players use skillful physics-based shots and powerful ghostly abilities to manipulate the arena, bend the laws of physics, and outwit their opponents. Sink your rival's marbles to claim victory in this ethereal showdown of skill and cunning.
